@@ -11,4 +11,4 @@ Hi there, I am Halil 👋
 
 🤭 Visit My Linkedin Account:
 --
-İletişim kurarak ağımızı genişletebiliriz -- https://www.linkedin.com/in/halil-ibrahim-%C5%9Fenayd%C4%B1n-6b50331b8/
+By communicating, we can expand our network  -- https://www.linkedin.com/in/halil-ibrahim-%C5%9Fenayd%C4%B1n-6b50331b8/
