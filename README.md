@@ -9,7 +9,3 @@ Hi there, I am Halil 👋
 - 💬 Ask me about c#
 - 📫 How to reach me: snydnhll@hotmail.com
 
-
-👉👈 Github Stats
---
-https://github.com/anuraghazra/github-readme-stats
