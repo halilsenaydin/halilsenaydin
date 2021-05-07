@@ -9,3 +9,6 @@ Hi there, I am Halil 👋
 - 💬 Ask me about c#
 - 📫 How to reach me: snydnhll@hotmail.com
 
+🤭 Visit My Linkedin Account:
+--
+İletişim kurarak ağımızı genişletebiliriz -- https://www.linkedin.com/in/halil-ibrahim-%C5%9Fenayd%C4%B1n-6b50331b8/
